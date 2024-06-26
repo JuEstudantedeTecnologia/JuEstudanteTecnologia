@@ -1,5 +1,5 @@
 # JuEstudanteTecnologia
-Sejam todos bem vindos ao me perfil!
+Sejam todos bem vindos ao me perfil!💌
 Meu nome é Julia Jane Ribeiro Custodio
 Estou estudano na Alura a há quatro meses 
 Já trabalhei com o  Scratch
